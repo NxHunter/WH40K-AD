@@ -1,4 +1,4 @@
-# Warhammer 40K: Imperium Arsenal
+# Warhammer 40K: Administratum Damnatio
 
 *For the Emperor! Death to the heretics!*
 
